@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋, I'm Sumit Lonkar!
 
 - 🔭 I’m currently working on Ads @ Facebook
 - 🌱 I’m currently learning to Fly Plane under IFR
